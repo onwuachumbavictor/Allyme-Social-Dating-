@@ -1,2 +1,3 @@
 # Allyme-Social-Dating-
-Meet new friends near you for hang out, one night stand,  serious relationship, hook up, friends with benefits and more. 
+Meet New Friends Near You For Hang Out, One Night Stand,  s
+Serious Relationship, Courtship, Hook Up, Friends With Benefits And More. 
